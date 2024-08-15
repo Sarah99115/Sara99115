@@ -22,3 +22,8 @@ Gosto muito de jogar no celular.
 
 Meu filme e serie favoritos são Maze Runner e Stranger Things.
 
+Entre em contato comigo em @zanchi.sarah@escola.pr.gov.br
+
+![](https://media.tenor.com/edpTCPuIcYoAAAAM/feliz-alegre.gif)
+![](https://media.tenor.com/cRHFCHYVsLIAAAAM/hospital-hello.gif)
+![](https://media.tenor.com/6UunvpuTN3AAAAAM/gm-good-morning.gif)
