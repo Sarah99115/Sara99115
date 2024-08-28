@@ -27,3 +27,4 @@ Entre em contato comigo em @zanchi.sarah@escola.pr.gov.br
 ![](https://media.tenor.com/edpTCPuIcYoAAAAM/feliz-alegre.gif)
 ![](https://media.tenor.com/cRHFCHYVsLIAAAAM/hospital-hello.gif)
 ![](https://media.tenor.com/6UunvpuTN3AAAAAM/gm-good-morning.gif)
+![](https://media.tenor.com/eswzeB0mSGoAAAAj/lilo-and-stitch-animation.gif)
